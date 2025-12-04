@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hola 👋
 Hola, mi nombre es Nusssae y estoy estudiando DAW y finalizando ASIR, además soy Técnico SUperior en Administración y Finanzas
 y en Desarrollo y Aplicación de Proyectos de Construcción.
 
